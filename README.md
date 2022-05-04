@@ -1,2 +1,2 @@
-# sky.cool
-dont know honestly
+# ezsky.cool
+Real
